@@ -1,1 +1,1 @@
-Professional portfolio highlighted completed works.
+Professional portfolio highlighting completed works.
